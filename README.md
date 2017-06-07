@@ -1,4 +1,5 @@
 # Gcm-aula02
 Paul Walker
-Isis valverde
+Arnold schwarzenegger
 Paola oliveira
+Angelina jolie
